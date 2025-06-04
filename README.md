@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NishaBevans
 - 👀 I’m interested in movies, computers, and gaming.
-- 🌱 I’m currently working with Atlas Interactive.
-- 📫 How to reach me nisha.chavez@yahoo.com
+- 🌱 I’m currently working with Lilium Lashes.
+- 📫 How to reach me tanishabevans@yahoo.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I had a small bit of voice acting in an indie video game (yet to be released.)
 
